@@ -1,3 +1,3 @@
 # Washed-Up-Studios
 
-Yoyo
+Yoyo Zup
